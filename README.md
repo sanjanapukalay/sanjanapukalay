@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sanjanapukalay
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on Projects and
+- 💞️ I’m looking to collaborate on Projects and Study Sessions
 - 📫 How to reach me - Email: sanjanapukalay@gmail.com (or) Linkedin: [sanjanapukalay](https://www.linkedin.com/in/sanjanapukalay/)
 
 <!---
